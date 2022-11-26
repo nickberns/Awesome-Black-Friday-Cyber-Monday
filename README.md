@@ -246,6 +246,7 @@ Don't forget to:
 |  💰 | [Keyword Insights](https://www.keywordinsights.ai/blog/black-friday/) | Accelerate your content marketing with Data & AI. Generate thousands of keyword ideas, group them into topical clusters and create incredibly detailed content briefs effortlessly. | **25% discount on all credit top-ups** between 24th - 27th November (automatically applied)
 |  💰 | [AMZWatcher](https://www.amzwatcher.com/) | AMZ Watcher helps Amazon Affiliates find and fix links to broken, unavailable and 404 products. | **30% OFF lifetime discount** Code: BLACKFRIDAY22
 |  💰 | [Senuto](https://www.senuto.com/en/) | Senuto Suite consists of 5 modules and over a dozen of tools, designed to enhance your SEO workflow | **50% OFF** Code: BLACKFRIDAY22
+|  💰 | [SEO HERO](https://www.seohero.net/) | SEO HERO helps agencies audit sites in seconds and win more clients with beautiful audit reports. | **50% OFF** Code: BLACKFRIDAY22
 
 
 [⬆️ Go to Top](#table-of-contents)
@@ -558,6 +559,6 @@ Don't forget to:
 | 🤑 | [McClockface](https://apps.apple.com/app/mcclockface/id1544343485) | Beautiful clock widgets for iOS and iPadOS. | 60% off regular price, one-time lifetime purchase. |
 | 🤑 | [FilmNoir: Movie & TV Show Tracker](https://apps.apple.com/app/apple-store/id1528417240?pt=122011495&ct=blackfriday2022&mt=8) | Discover films and TV shows. Track your full watched history. Find out where to watch. | 50% off the one-time lifetime purchase. Up to 40% off the first year with the code **[BLACKFRIDAY2022](https://apps.apple.com/redeem?ctx=offercodes&id=1528417240&code=BLACKFRIDAY2022)** |
 | 💰 | [Weathergraph weather widget]([https://apps.apple.com/app/mcclockface/id1544343485](https://apps.apple.com/app/apple-store/id1501958576?pt=1920589) | Visual hour-by-hour weather forecast app with widgets and watch complications, made for and by outdoor people. | 30% off for a first year. |
-
+|  💰 | [HairstyleAI](https://www.hairstyleai.com/) | Try out new hairstyles with AI technology. | **50% OFF** Auto-applied at checkout
 
 [⬆️ Go to Top](#table-of-contents)
